@@ -17,3 +17,7 @@ https://weheartit.com/kmosby1992
 https://independent.academia.edu/TuanDo45
 
 https://www.startupschool.org/companies/OWY6FvdRd
+
+https://ninjatrader.com/support/forum/forum/ninjatrader-8/platform-technical-support-aa/1167874-brokers-that-support-trading-stocks-with-ninja-trader
+
+https://repost.aws/questions/QUXnyIFWh4TQyCCKTBR-WVmw/ssh-permissions-are-too-open
