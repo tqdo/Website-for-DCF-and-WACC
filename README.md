@@ -21,3 +21,7 @@ https://www.startupschool.org/companies/OWY6FvdRd
 https://ninjatrader.com/support/forum/forum/ninjatrader-8/platform-technical-support-aa/1167874-brokers-that-support-trading-stocks-with-ninja-trader
 
 https://repost.aws/questions/QUXnyIFWh4TQyCCKTBR-WVmw/ssh-permissions-are-too-open
+
+https://linktr.ee/valueinvesting.io
+
+https://stevefagan56.wixsite.com/valueinvesting-io
